@@ -1,1 +1,0 @@
-# 5025251111_Ahmad-Rafli_KKA
